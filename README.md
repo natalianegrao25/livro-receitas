@@ -1,1 +1,7 @@
- LIVRO DE RECEITASOlá bem vindo!* Strogonoff de Frango* Pavê
+ LIVRO DE RECEITAS
+
+Olá bem vindo!
+
+* Strogonoff de Frango
+* Pavê
+* Bolo de cenoura
